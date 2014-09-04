@@ -1,1 +1,1 @@
-Lindsey Zimanek
+Lindsey Zimanek. Chicago Cubs
